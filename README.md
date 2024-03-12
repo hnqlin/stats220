@@ -25,7 +25,7 @@ Since you're here, I'll do a little intro of what I'm passionate about!
 
 ### Here are some space fun facts? 
 
-Source: Me, an astrophysics expert (I took a beginners Astronomy course last year)
+Source: Me, an astrophysics expert (I took a beginners astronomy course last year)
 
 1. Our Moon is lemon-shaped 🌙
 2. The sun accounts for 99.86% of the total mass in our solar system, even including all of our planets, moons, asteroids, comets and everything else combined! 🪐
