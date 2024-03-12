@@ -1,5 +1,5 @@
 # **☆ Stats220**
-### Hello there, and welcome! ☆ ⋆｡°✩
+### Hey there, and welcome! ☆ ⋆｡°✩
 
 ![Impression, Sunrise](https://themobart.com/wp-content/uploads/2023/03/Claude-Monet-Famous-Paintings-Art.jpg) 
 > *Impression, Sunrise (Monet, 1872)* ✿
