@@ -8,7 +8,7 @@
 
 My name is Hanna, and I'm currently a second-year student pursuing a Bachelors of Data Science at The University of Auckland. This repository has been created for my *Data Technologies* course, as a part of a project to get familiar with using GitHub and Markdown :) 
 
-Since you're here, I'll do a little intro of my passions!
+Since you're here, I'll do a little intro of what I'm passionate about!
 
 ### **My favourite things include:**
 
